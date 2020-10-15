@@ -1,7 +1,1 @@
 # Health-Care-in-Nepal
-
-
-
-
-
-
